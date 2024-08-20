@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @CMGibb95
 - 👀 I’m interested in cybersecurity and software development!
-- 🌱 I’m currently learning cybersecurity analytics and programming.
+- 🌱 I’m currently learning software development and programming.
 - 💞️ I’m looking to collaborate on any and everything if they're willing to teach me!
 - 📫 How to reach me: casemgibson95@gmail.com or on LinkedIn at www.linkedin.com/in/shelby-gibson-11a2422a1
 - 😄 Pronouns: He/him
